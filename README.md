@@ -10,7 +10,7 @@ Some would say I am a super serious, highly opinionated, skilled dev who gets th
 - 🔭 I’m currently working on seakdigital.co.za
 - 🌱 I’m currently learning graphQL
 - 👯 I’m looking to collaborate customer facing long-term digital products solving a singular problem.
-- 🤔 I’m looking for help with on open source music projects
+- 🤔 I’m looking for help with open source music projects
 - 💬 Ask me about music
 
 
