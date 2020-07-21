@@ -12,7 +12,6 @@ Some would say I am a super serious, highly opinionated, skilled dev who gets th
 - 👯 I’m looking to collaborate customer facing long-term digital products solving a singular problem.
 - 🤔 I’m looking for help with on open source music projects
 - 💬 Ask me about music
-- 📫 How to reach me: nsineke@gmail.com
 
 
 While you hear check out my mix of dope beastrumentals type music to listen to while you work.
