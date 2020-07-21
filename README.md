@@ -17,5 +17,7 @@ PS: I'm currently in the JAMstack movement, but you know how this bandwagon goes
 While you hear check out my mix of dope beastrumentals type music to listen to while you work.
 [Listen on SoundCloud](https://soundcloud.com/skaftinselects/seak-dj-funeral-for-passion?in=skaftinselects/sets/skaftin-selector)
 
+![Monde Sineke Visual CV](https://lh3.googleusercontent.com/tvYO1sL1c4PXsc4Cl-qJQILHnjvh8BYAo3ACZHpzJ_v8BjZQ6dW7nOAug3JzWTzRgCJo7aUTTPSWO12xxcDT=w1960-h3478-rw)
+
 <!--
 **S3ak/S3ak** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
