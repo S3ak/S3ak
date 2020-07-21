@@ -17,7 +17,7 @@ PS: I'm currently in the JAMstack movement, but you know how this bandwagon goes
 While you hear check out my mix of dope beastrumentals type music to listen to while you work.
 [Listen on SoundCloud](https://soundcloud.com/skaftinselects/seak-dj-funeral-for-passion?in=skaftinselects/sets/skaftin-selector)
 
-![Monde Sineke Visual CV](https://lh3.googleusercontent.com/tvYO1sL1c4PXsc4Cl-qJQILHnjvh8BYAo3ACZHpzJ_v8BjZQ6dW7nOAug3JzWTzRgCJo7aUTTPSWO12xxcDT=w1960-h3478-rw)
+![Monde Sineke Visual CV](https://lh6.googleusercontent.com/azIbETqneQavMUqTO6Em-GoFWS_UIZZguN-5ZHCd1HRgxb5BKb-Q2QKuVMuwJhDH2EenEN4BNl3yAbpgCKwP=w1960-h3478-rw)
 
 Peace ✌🏾
 <!--
