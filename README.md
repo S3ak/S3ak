@@ -15,6 +15,7 @@ Some would say I am a super serious, highly opinionated, skilled dev who gets th
 PS: I'm currently in the JAMstack movement, but you know how this bandwagon goes 🤷🏿‍♂️.
 
 While you hear check out my mix of dope beastrumentals type music to listen to while you work.
-https://soundcloud.com/skaftinselects/seak-dj-funeral-for-passion?in=skaftinselects/sets/skaftin-selector
+[Listen on SoundCloud](https://soundcloud.com/skaftinselects/seak-dj-funeral-for-passion?in=skaftinselects/sets/skaftin-selector)
+
 <!--
 **S3ak/S3ak** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
