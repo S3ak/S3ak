@@ -14,7 +14,7 @@ Some would say I am a super serious, highly opinionated, skilled dev who gets th
 - 💬 Ask me about music
 
 
-While you hear check out my mix of dope beastrumentals type music to listen to while you work.
+While you are here check out my mix of dope beastrumentals type music.
 [Listen on SoundCloud](https://soundcloud.com/skaftinselects/seak-dj-funeral-for-passion?in=skaftinselects/sets/skaftin-selector)
 
 
