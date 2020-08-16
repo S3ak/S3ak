@@ -1,4 +1,4 @@
-### Sup G 👋
+### Hi, I'm Mo 👋
 
 
 ![Tetsuo Shima staring into his domination](https://media.giphy.com/media/jsoMtBuP1Ahpu/giphy.gif)
@@ -13,6 +13,7 @@ Some would say I am a super serious, highly opinionated, skilled dev who gets th
 - 🤔 I’m looking for help with open source music projects
 - 💬 Ask me about music
 
+[![Anurag's github stats](https://github-readme-stats.vercel.app/api?username=s3ak)](https://github.com/anuraghazra/github-readme-stats)
 
 While you are here check out my mix of dope beastrumentals type music.
 [Listen on SoundCloud](https://soundcloud.com/skaftinselects/seak-dj-funeral-for-passion?in=skaftinselects/sets/skaftin-selector)
