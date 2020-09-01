@@ -18,10 +18,6 @@ Some would say I am a super serious, highly opinionated, skilled dev who gets th
 While you are here check out my mix of dope beastrumentals type music.
 [Listen on SoundCloud](https://soundcloud.com/skaftinselects/seak-dj-funeral-for-passion?in=skaftinselects/sets/skaftin-selector)
 
-
-![Monde Sineke Visual CV](https://lh6.googleusercontent.com/azIbETqneQavMUqTO6Em-GoFWS_UIZZguN-5ZHCd1HRgxb5BKb-Q2QKuVMuwJhDH2EenEN4BNl3yAbpgCKwP=w1960-h3478-rw)
-
-
 Peace ✌🏾
 
 PS: I'm currently in the JAMstack movement, but you know how this bandwagon goes 🤷🏿‍♂️.
